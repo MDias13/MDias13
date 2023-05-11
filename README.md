@@ -1,4 +1,4 @@
-## Olá eu sou Marcos, Um apaixonado programação e tecnologia!
+## Olá eu sou Marcos, Um apaixonado por programação e tecnologia!
 
 
 
